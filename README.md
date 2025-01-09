@@ -1,4 +1,4 @@
-# L'ENVOL
+# L'Envol
 
 *L’Envol* est une création théâtrale, cinématographique, magique et musicale qui réunit père et fils autour de l’utopie du vol. Les auteurs communiquent leur fascination pour le vol, leur désir d’échapper aux lois de la pesanteur et réveillent le mythe ancestral de pouvoir voler. Une façon de repousser les limites, en tout cas d’y croire, le temps de ce spectacle poétique, technique et décalé.
 
